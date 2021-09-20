@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @requisition32NX
+- learning
